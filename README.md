@@ -20,3 +20,8 @@ Editor-in-Chief at **Tecnología Geek** — Spanish-language technology media co
 ## Contact
 - Web: https://tecnologiageek.com
 - X: https://x.com/tecnologiageeks
+- Instagram: https://www.instagram.com/tecnologiageekllc
+- Facebook: https://www.facebook.com/tecnologiageek2
+- YouTube: https://www.youtube.com/@TecnologiaGeekLLC
+- TikTok: https://www.tiktok.com/@tecnologiageeks
+- Threads: https://www.threads.net/@tecnologiageekllc
